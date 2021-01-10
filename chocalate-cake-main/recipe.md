@@ -1,0 +1,5 @@
+1.  TIPS:Sift the dry ingredients into a large bowl first bowl first to get rid of any hard lumps caused during storage,while getting more air into the mixture .
+2.  The only thing you can add to this already perfect cake recipe is a couple teaspoons of instant coffee or espresso for an even deeper chocolate flavour.Of course,this is totally and COMPLETELY optional.You cannot taste the coffee flavour.
+3.  -----------WHAT MAKES CHOCOLATE CAKE MOIST ------------------
+The perfect combination of oil,milk and boiling water makes this recipestand out without having to use melted chocolate .The fats in the oil ,protein in the milk and temperature of the water makes the chocolate flavour devlop nicely while baking and providing the essentials for that moist crumb you're looking for .
+Don't over mix OR over bake the cake .The chocolate cake needs only 30-35 minutes to bake . 
